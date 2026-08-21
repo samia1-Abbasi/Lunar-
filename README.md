@@ -51,7 +51,8 @@ By choosing Lunar Security, clients gain a trusted partner dedicated to creating
 
 ## **Contact Information**
 
-**Phone:** 051 4938134 - 35
+**Phone:** 051 4938134-35
+
 
 **Mobile:** 0300/0333 5341375
 
